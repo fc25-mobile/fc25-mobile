@@ -2,7 +2,7 @@ Are you ready to experience the ultimate football simulation with all premium fe
 
 ▶️ **[EA SPORTS FC 25 MOD APK Here
 ▶️ EA SPORTS FC 25 Here
-▶️ EA SPORTS FC 25 OFFLINE Here](https://modxdroid.com/ea-sports-fc-25-ppsspp.html/)**  
+▶️ EA SPORTS FC 25 OFFLINE Here](https://modxdroid.com/ea-sports-fc-25-mobile.html/)**  
 
 ---
 
