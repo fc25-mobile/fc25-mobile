@@ -15,6 +15,9 @@ Are you ready to experience the ultimate football simulation with all premium fe
 - **Realistic Graphics & Visuals**: Experience stunning stadium visuals, crowd cheers, and reality-inspired voiceovers.  
 - **Dynamic Soccer Modes**: Play 11v11 real-time battles, join mega quests, or train your players in professional coaching hubs.  
 
+
+![ea-sports-fc-mobile-beta-3](https://github.com/user-attachments/assets/df838c0f-69fa-4f92-8ea3-9cac73b549ab)
+
 ---
 
 ### Why Choose EA SPORTS FC 25 MOD APK?  
